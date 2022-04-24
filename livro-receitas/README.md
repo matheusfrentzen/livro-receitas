@@ -2,6 +2,6 @@
 
 Olá! Bem vindo ao meu livro de receitas
 
-Strogonoff de Camarão
+-Strogonoff de Camarão
 
-mousse de maracujá
+-mousse de maracujá
